@@ -69,3 +69,8 @@
 餃子好きのみなさま、一緒に餃子祭りを盛り上げていきましょう！🎉
 
 **注意**: このリポジトリは餃子愛が溢れるコミュニティのためのものであり、実際の餃子を食べながら閲覧することをおすすめします。
+
+
+## 😁 レシピはこちら
+
+https://docs.google.com/presentation/d/10NRPKAhQYcrYADNzl_-VdahrI1IwqPzzYy63f5Y-3ik/edit?usp=sharing
